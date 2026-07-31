@@ -32,4 +32,4 @@ L'utente può in qualsiasi momento cancellare i dati direttamente dall'app o dis
 
 ## 8. Contatti
 Per domande sulla privacy:
-📧 email: emanuelesinagra@gmail.com
+📧 email: nutrijoy.app@gmail.com
