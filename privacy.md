@@ -81,7 +81,7 @@ Hai inoltre diritto a proporre reclamo all'Autorità Garante per la Protezione d
 ## 8. Contatti
 
 Per domande sulla privacy o per esercitare i tuoi diritti:
-📧 email: emanuelesinagra@gmail.com
+📧 email: nutrijoy.app@gmail.com
 
 ## 9. Modifiche a questa informativa
 
