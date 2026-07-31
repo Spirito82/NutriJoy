@@ -85,7 +85,7 @@ Qualora una o più disposizioni di questi Termini fossero ritenute invalide o in
 ## 14. Contatti
 
 Per domande su questi Termini:
-📧 email: emanuelesinagra@gmail.com
+📧 email: nutrijoy.app@gmail.com
 
 ---
 
